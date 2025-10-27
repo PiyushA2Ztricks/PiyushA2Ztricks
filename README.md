@@ -50,11 +50,11 @@
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- ➪ 𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺 𝙶𝚁𝙾𝚄𝙿 :- [PIYUSH A2Z TRICS]([https://facebook.com//](https://facebook.com/groups//))
+- ➪ 𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺 𝙶𝚁𝙾𝚄𝙿 :- [PIYUSH A2Z TRICSK]([https://facebook.com//](https://facebook.com/groups//))
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- ➪ 𝙸𝙽𝚂𝚃𝙰𝙶𝚁𝙰𝙼 :- [Piyush__chauhan_34](https://www.instagram.com/piyush__chauhan_34?igsh=MThsNnhvYWFkb3A2cA==)
+- ➪ 𝙸𝙽𝚂𝚃𝙰𝙶𝚁𝙰𝙼 :- [Piyush__chauhan_034](https://www.instagram.com/piyush__chauhan_034?igsh=MThsNnhvYWFkb3A2cA==)
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
